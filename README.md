@@ -51,3 +51,5 @@ My english grammar and spelling is bad so I ask for u forgiveness for it since e
 
 
 -More stuffs will be added here soon.
+
+Also if u recognize me and wonder why im not on ur friends list and dont talk to u anymore, I uh, im sorry. I left everyone behind okay. I got back with some others but I just couldnt. Just know Ive cherished u once too. I dont want to talk about the past and I dont want u to talk about it either.
