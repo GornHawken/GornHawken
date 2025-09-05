@@ -1,3 +1,4 @@
+![Screenshot_2025-09-05-18-13-13-737_jp ne ibis ibispaintx app](https://github.com/user-attachments/assets/634e629b-2d8d-461d-8f2b-789fb316c411)
 ## Greetings, 
 ___
 I am Gorn, formerly known as Stanley. This README will be quite long since I will be putting many stuffs for u to read if u want to know some things about me. Not interests, just me in general (interests/hobbies will be in Strawpage, basic byi/dni in rentry, and preferences in pronouns page, though most of them are currently WIP so have this for now).
