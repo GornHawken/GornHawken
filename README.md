@@ -10,7 +10,7 @@ YES! Judging by my skins u could already tell I like rainbows and silly stuffs! 
 
 I am deeply religious but please dont mistake me as one of those deeply judgemental and hateful Christians! I am not and I am willing to accept others for who they are, but know I may say religious stuffs.
 
-please know I may be awkward if its our first interaction but I do tend to yap and get excited if we have some common interests or if u mention one of my hyperfixations (Haha TF2 hyperfixation go brr) but ill always try my best to keep the conversation going for u if u wanana! Though if u want quietness I can gladly just sit besides u in silence for hours! Thats fine by me.
+Know I may be awkward if its our first interaction but I do tend to yap and get excited if we have some common interests or if u mention one of my hyperfixations (Haha TF2 hyperfixation go brr) but ill always try my best to keep the conversation going for u if u wanana! Though if u want quietness I can gladly just sit besides u in silence for hours! Thats fine by me.
 
 Please remember that I have many coping links and kins! Most of the skins I wear are simply c'links of mine (you'll know if it isnt one of my c'links or kins if they have a red ribbon on their tail!, orange is for c'link/kin and yellow is comfort character) and that I may be in the mindset of the character/skin I am currentlz using at all times.
 
@@ -55,13 +55,17 @@ Roleplayers! I enjoy roleplaying but doesnt mean im constantly in the mood for r
 People who tends to be quite dry with talking... sorry but I cant keep carrying this convo all alone! :(
 
 **MORE ABOUT ME**
+
 I LOVE YELLOW, ORANGE AND RED! THOUGH I PREFER BLU OVER RED SINCE BLU IS SIMPLY MORE SUPERIOUR! (idk why I love BLU that much)
 
-Really loves the sea and pirates... heh
+Really loves the sea and pirates and wizards... heh
 
 May be a bit clingy if we became friends (advance apology)
 
 DEEPLY AFFECTIONATE AND ALWAYS FREE TO VENT WITH!!!
 
 **SPECIAL THANKKS TO;**
+
 Levv, Santiogo, Fatimuh, Citrine, Ploy, Birb and Cheesy! THANK YOU SO MUCH FOR PUTTING UP WITH ME AND FOR BEING MY FRIEND THAT STAYED ILYSM ><!!!!
+
+(DONT GET OFFENDED IF UR NOT HERE PLEASE! ITS NOT BECAUSE UR NOT MY FRIEND ITS JUST THAT I DONT REALLY TALK OR SIT WITH U THAT MUCH!)
