@@ -24,7 +24,7 @@ PLEASE READ MY PRONOUNS PAGE I BEG U, SOME OF U TEND TO CALL ME THE NICKNAMES I 
 
 I dont accept random friend requests or parties! I only add those who Ive talked with a couple time before or I really vibed with (I am also very shy, so uh if we become friends please let me know ur not gonna get annoyed if I approach u and sit besides u because I tend to do that with my friends, unless im already with another friend)
 
-Check my status to see if im available please, my status changes depending on what or how I am feeling;
+Check my status to see if im available please, my status changes depending on what or how I am feeling or doing IRL;
 
 Online: Active, will immediately reply and is willing to talk
 
