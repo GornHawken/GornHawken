@@ -42,7 +42,9 @@ My english sucks btw (not my first language)
 
 People who are in or associated in problamatic fandoms and such
 
-PEDOS! NO, IM A MINOR AND EW (All ages are welcome to interact with me, even adults... just dont be weird please, I hate reliving experiences with pedos again :( )
+People who dislikes my interests cuz yknow... how am I supposed to get along with u?
+
+People who makes sexual jokes way too much and doesnt stop despite clear signs of discomfort or no. 
 
 Proshippers, non-con readers, homophobic/racist people, disrespectful people, etc.
 
@@ -66,6 +68,6 @@ DEEPLY AFFECTIONATE AND ALWAYS FREE TO VENT WITH!!!
 
 **SPECIAL THANKKS TO;**
 
-Levv, Santiogo, Fatimuh, Citrine, Ploy, Birb and Cheesy! THANK YOU SO MUCH FOR PUTTING UP WITH ME AND FOR BEING MY FRIEND THAT STAYED ILYSM ><!!!!
+Levv, Santiogo, Fatimuh, Ploy, Birb and Cheesy! THANK YOU SO MUCH FOR PUTTING UP WITH ME AND FOR BEING MY FRIEND THAT STAYED I LOVE U ALL SM ><!!!!
 
 (DONT GET OFFENDED IF UR NOT HERE PLEASE! ITS NOT BECAUSE UR NOT MY FRIEND ITS JUST THAT I DONT REALLY TALK OR SIT WITH U THAT MUCH!)
