@@ -5,14 +5,15 @@ My names Gorn! Nice to meet you >< You probably recognise my overly vibrant skin
 
 YES! Judging by my skins u could already tell I like rainbows and silly stuffs! Please talk to me or sit next to me! Especially if I have C-H on my name! I really like having company (I constantly check my friends list to see if anyone is online to sit or talk with, I only have 9 friends *cries* AND MOST OF THEM ARE ALWAYS OFFLINE! PLEASE I DONT LIKE BEING ALONE!) I dont bite or judge so please dont be scared ^^ Though please do not make any sexualized jokes with me, even if close friends, unless I inititiated first (which barely happens most times) since it makes me very uncomfortable, please respect this!
 
+PLEASE APPROACH ME IM VERY APPROACHABLE (gasps, unless my skins looks too intimidating... PLS TELL ME IF MY SKINS LOOK APPROACHABLE AND FRIEND MATERIAL ENOUGH I DONT WANNA MAKE OTHERS THINK IM SCARY AND SERIOUS, JUST A SILLY GUY!)
 
 **BYI**
 
-I am deeply religious but please dont mistake me as one of those deeply judgemental and hateful Christians! I am not and I am willing to accept others for who they are, but know I may say religious stuffs.
+I am deeply religious but please dont mistake me as one of those deeply judgemental and hateful Christians! I am not and I am willing to accept others for who they are, even LGBTQ and furries etc, but know I may say religious stuffs!
 
-Know I may be awkward if its our first interaction but I do tend to yap and get excited if we have some common interests or if u mention one of my hyperfixations (Haha TF2 hyperfixation go brr) but ill always try my best to keep the conversation going for u if u wanana! Though if u want quietness I can gladly just sit besides u in silence for hours! Thats fine by me.
+Know I may be awkward and very shy if its our first interaction but I do tend to yap and get excited if we have some common interests or if u mention one of my hyperfixations (Haha TF2 hyperfixation go brr) but ill always try my best to keep the conversation going for u if u wanana! Though if u want quietness I can gladly just sit besides u in silence for hours! Thats fine by me.
 
-Please remember that I have many coping links and kins! Most of the skins I wear are simply c'links of mine (you'll know if it isnt one of my c'links or kins if they have a red ribbon on their tail!, orange is for c'link/kin and yellow is comfort character) and that I may be in the mindset of the character/skin I am currentlz using at all times.
+Please remember that I have many coping links/fictives and kins! Most of the skins I wear are simply c'links of mine (you'll know if it isnt one of my c'links/fictives or kins if they have a red ribbon on their tail!, orange is for c'link/kin and yellow is comfort character) and that I may be in the mindset of the character/skin I am currentlz using at all times.
 
 Tell me about ur prefrences or boundries please if we ever interact with eachother, especiallz if u dont have a README or strawpage since I dont wanna accidentally cross any of ur boundries and such and please W2I with me!!!! I tend to get uncomfortable talking in public chat because I feel like someone is secretely watching our convo (due to past stalking issues)
 
@@ -40,7 +41,7 @@ My english sucks btw (not my first language)
 
 **DNI**
 
-People who are in or associated in problamatic fandoms and such
+People who are in or associated in problamatic fandoms and such (TCOAAL, Changed....)
 
 People who dislikes my interests cuz yknow... how am I supposed to get along with u?
 
@@ -50,7 +51,7 @@ Proshippers, non-con readers, homophobic/racist people, disrespectful people, et
 
 **IWEC**
 
-Shippers please interact with caution since im not really the type of guy to ship characters! Though im willing to tolerate ships as long as it isnt problamatic (just dont talk about it too much, it gets me uncomfortable)
+Shippers please interact with EXTREME caution since im not really the type of guy to ship characters (unless ur ships arent with characters on fandoms im in since I barely care about other fandoms)! Though im willing to tolerate ships as long as it isnt problamatic (just dont talk about it too much, it gets me uncomfortable)
 
 Roleplayers! I enjoy roleplaying but doesnt mean im constantly in the mood for roleplay! Please ask me first to roleplay (unless I have searching for roleplay as my status)
 
@@ -65,6 +66,8 @@ Really loves the sea and pirates and wizards... heh
 May be a bit clingy if we became friends (advance apology)
 
 DEEPLY AFFECTIONATE AND ALWAYS FREE TO VENT WITH!!!
+
+Pluh is the sound my species make... heh
 
 **SPECIAL THANKKS TO;**
 
