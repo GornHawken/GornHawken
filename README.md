@@ -11,7 +11,7 @@ PLEASE APPROACH ME IM VERY APPROACHABLE (gasps, unless my skins looks too intimi
 
 I am deeply religious but please dont mistake me as one of those deeply judgemental and hateful Christians! I am not and I am willing to accept others for who they are, even LGBTQ and furries etc, but know I may say religious stuffs!
 
-Know I may be awkward and very shy if its our first interaction but I do tend to yap and get excited if we have some common interests or if u mention one of my hyperfixations (Haha TF2 hyperfixation go brr) but ill always try my best to keep the conversation going for u if u wanana! Though if u want quietness I can gladly just sit besides u in silence for hours! Thats fine by me.
+Know I may be awkward and very shy if its our first interaction but I do tend to yap and get excited if we have some common interests or if u mention one of my hyperfixations (Haha TF2 hyperfixation go brr) but ill always try my best to keep the conversation going for u if u wanna! Though if u want quietness I can gladly just sit besides u in silence for hours! Thats fine by me.
 
 Please remember that I have many coping links/fictives and kins! Most of the skins I wear are simply c'links of mine (you'll know if it isnt one of my c'links/fictives or kins if they have a red ribbon on their tail!, orange is for c'link/kin and yellow is comfort character) and that I may be in the mindset of the character/skin I am currentlz using at all times.
 
@@ -66,6 +66,7 @@ Really loves the sea and pirates and wizards... heh
 May be a bit clingy if we became friends (advance apology)
 
 DEEPLY AFFECTIONATE AND ALWAYS FREE TO VENT WITH!!!
+**I JUST NOTICED I MISSPELLED WANNA AS WANANA JUST NOW IM SO EMBARASSED WHY SOBS**
 
 Pluh is the sound my species make... heh
 
