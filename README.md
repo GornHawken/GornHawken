@@ -1,7 +1,7 @@
 ## HELLO!!!
 
 
-My names Gorn! Nice to meet you >< You probably recognise my overly vibrant skins in specific areas such as the TF2 area and the HP area! Im guessing u got curious heh ^3^
+My names Gorn! Nice to meet you >< You probably recognise my overly vibrant skins and silly yippee skins too in specific areas such as the TF2 area and the HP area! Im guessing u got curious heh ^3^
 
 YES! Judging by my skins u could already tell I like rainbows and silly stuffs! Please talk to me or sit next to me! Especially if I have C-H on my name! I really like having company (I constantly check my friends list to see if anyone is online to sit or talk with, I only have 9 friends *cries* AND MOST OF THEM ARE ALWAYS OFFLINE! PLEASE I DONT LIKE BEING ALONE!) I dont bite or judge so please dont be scared ^^ Though please do not make any sexualized jokes with me, even if close friends, unless I inititiated first (which barely happens most times) since it makes me very uncomfortable, please respect this!
 
