@@ -11,9 +11,13 @@ PLEASE APPROACH ME IM VERY APPROACHABLE (gasps, unless my skins looks too intimi
 
 I am deeply religious but please dont mistake me as one of those deeply judgemental and hateful Christians! I am not and I am willing to accept others for who they are, even LGBTQ and furries etc, but know I may say religious stuffs!
 
-Know I may be awkward and very shy if its our first interaction but I do tend to yap and get excited if we have some common interests or if u mention one of my hyperfixations (Haha TF2 hyperfixation go brr) but ill always try my best to keep the conversation going for u if u wanna! Though if u want quietness I can gladly just sit besides u in silence for hours! Thats fine by me.
+Know I may be awkward and very shy if its our first interaction but I do tend to yap and get excited if we have some common interests or if u mention one of my hyperfixations (Haha TF2 hyperfixation go brr) but ill always try my best to keep the conversation going for u if u wanna! Though if u want quietness I can gladly just sit besides u in silence for hours! Thats fine by me!
 
-Please remember that I have many coping links/fictives and kins! Most of the skins I wear are simply c'links of mine (you'll know if it isnt one of my c'links/fictives or kins if they have a red ribbon on their tail!, orange is for c'link/kin and yellow is comfort character) and that I may be in the mindset of the character/skin I am currentlz using at all times.
+Im also very shy and anxious at times, even towards close friends so sorry if im not interacting or sitting with u... Im probably overwhelmed but know u can always interact with me tho even while im anxious!
+
+I am very clingy, really. Id try to get all my friends to meet eachother and like sitting w them a lot. Though sometimes I can be VERY rude and mean towards specific types of people if I first meet them, so please be weary and advance apologies if im ever rude to u!
+
+Please remember that I have many coping links/fictives and kins! Most of the skins I wear are simply c'links of mine (you'll know if it isnt one of my c'links/fictives or kins if they have a red ribbon on their tail!, orange is for c'link/kin and yellow is comfort character) and that I may be in the mindset of the character/skin I am currently using at all times.
 
 Tell me about ur prefrences or boundries please if we ever interact with eachother, especiallz if u dont have a README or strawpage since I dont wanna accidentally cross any of ur boundries and such and please W2I with me!!!! I tend to get uncomfortable talking in public chat because I feel like someone is secretely watching our convo (due to past stalking issues)
 
@@ -48,6 +52,8 @@ People who dislikes my interests cuz yknow... how am I supposed to get along wit
 People who makes sexual jokes way too much and doesnt stop despite clear signs of discomfort or no. 
 
 Proshippers, non-con readers, homophobic/racist people, disrespectful people, etc.
+
+SHELLY AND HER FRIENDS.
 
 **IWEC**
 
