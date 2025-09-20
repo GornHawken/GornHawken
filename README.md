@@ -27,7 +27,7 @@ I get easily overwhelmed and overstimulated at crowds or too many chat bubbles a
 
 PLEASE READ MY PRONOUNS PAGE I BEG U, SOME OF U TEND TO CALL ME THE NICKNAMES I DONT REALLY LIKE! ><
 
-I dont accept random friend requests or parties! I only add those who Ive talked with a couple time before or I really vibed with (I am also very shy, so uh if we become friends please let me know ur not gonna get annoyed if I approach u and sit besides u because I tend to do that with my friends, unless im already with another friend)
+I dont accept random friend requests or parties! I only add those who Ive talked with a couple time before or I really vibed with though im very shy adding people so please add me first(I am also very shy, so uh if we become friends please let me know ur not gonna get annoyed if I approach u and sit besides u because I tend to do that with my friends, unless im already with another friend)
 
 Check my status to see if im available please, my status changes depending on what or how I am feeling or doing IRL;
 
@@ -72,12 +72,9 @@ Really loves the sea and pirates and wizards... heh
 May be a bit clingy if we became friends (advance apology)
 
 DEEPLY AFFECTIONATE AND ALWAYS FREE TO VENT WITH!!!
+
+I LOVE DEMOMAN, HEAVY AND MERASMUS SM PLES FEED ME MORE CONTENTS ABT THESE THREE I BEG U ALL
+
 **I JUST NOTICED I MISSPELLED WANNA AS WANANA JUST NOW IM SO EMBARASSED WHY SOBS**
 
-Pluh is the sound my species make... heh
-
-**SPECIAL THANKKS TO;**
-
-Levv, Santiogo, Fatimuh, Ploy, Birb and Cheesy! THANK YOU SO MUCH FOR PUTTING UP WITH ME AND FOR BEING MY FRIEND THAT STAYED I LOVE U ALL SM ><!!!!
-
-(DONT GET OFFENDED IF UR NOT HERE PLEASE! ITS NOT BECAUSE UR NOT MY FRIEND ITS JUST THAT I DONT REALLY TALK OR SIT WITH U THAT MUCH!)
+Pluh is the sound my species make... heh (I AM A SPECIES KNOWN AS PLUH!!!! /JK)
