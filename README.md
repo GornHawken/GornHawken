@@ -17,6 +17,8 @@ Im also very shy and anxious at times, even towards close friends so sorry if im
 
 I am very clingy, really. Id try to get all my friends to meet eachother and like sitting w them a lot. Though sometimes I can be VERY rude and mean towards specific types of people if I first meet them, so please be weary and advance apologies if im ever rude to u!
 
+Please know if I have a 🌈 emoji on my ponies name while being with a friend it usually means my friend doesnt want to be bothered or is venting. So please, even if u are on my friends list, dont sit next to me or my friend if I have one on my name and be respectful.
+
 Please remember that I have many coping links/fictives and kins! Most of the skins I wear are simply c'links of mine (you'll know if it isnt one of my c'links/fictives or kins if they have a red ribbon on their tail!, orange is for c'link/kin and yellow is comfort character) and that I may be in the mindset of the character/skin I am currently using at all times.
 
 Tell me about ur prefrences or boundries please if we ever interact with eachother, especiallz if u dont have a README or strawpage since I dont wanna accidentally cross any of ur boundries and such and please W2I with me!!!! I tend to get uncomfortable talking in public chat because I feel like someone is secretely watching our convo (due to past stalking issues)
