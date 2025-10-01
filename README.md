@@ -1,4 +1,2 @@
 ```diff
-- test
-
-<code style="color: red;">Test.</code>
+*- PAIN IS TEMPORARY, JOY IS ETERNAL*
