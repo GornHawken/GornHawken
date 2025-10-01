@@ -1,4 +1,4 @@
 ```diff
-- PAIN IS TEMPORARY, JOY IS ETERNAL
+PAIN IS TEMPORARY, JOY IS ETERNAL
 ```
-$${\color{red}Red}$$ HI PLEASE
+$${\color{red}please work}$$ 
