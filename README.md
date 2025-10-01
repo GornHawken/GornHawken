@@ -2,4 +2,4 @@
 PAIN IS TEMPORARY, JOY IS ETERNAL
 ```
 
-$${\color{red}please work}$$ 
+$${\color{yellow}please work}$$ 
