@@ -1,5 +1,5 @@
 ```diff
 - PAIN IS TEMPORARY, JOY IS ETERNAL
-
+```
 ## GREETINGS
 
