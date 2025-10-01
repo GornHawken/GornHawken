@@ -3,4 +3,4 @@
 ```
 $${\color{yellow}GREETINGS}$$ 
 
-$${\color{yellow}A \pleasure \having \you \taking \your \time \to \check \out \my \Github!}$$
+$${\color{yellow}A \space pleasure \space having \space you \space taking \space your \space time \space to \space check \space out \space my \space Github!}$$
