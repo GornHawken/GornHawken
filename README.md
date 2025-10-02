@@ -21,7 +21,6 @@ ${\color{darkorange}I \space am \space mostly \space with \space my \space frien
 ${\color{darkorange}I \space dont \space mind \space at \space all! \space Please \space dont \space be \space shy \space with \space me! \space Im \space a \space friendly \space guy \space I \space swear!}$
 > ^^
 
-
 > [!NOTE]
 > # BYI
 > I am 
