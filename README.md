@@ -19,8 +19,4 @@ ${\color{darkorange}You \space can \space mostly \space find \space me \space in
 ${\color{darkorange}Judging \space by \space my \space overly \space vibrant \space skins, \space yes \space I \space am \space indeed \space the \space type \space of \space guy \space that \space really \space loves \space rainbows \space and \space such!}$
 ${\color{darkorange}I \space am \space mostly \space with \space my \space friends \space most \space times \space but \space if \space u \space see \space me \space alone \space feel \space free \space to \space interact \space and \space C-H!}$
 ${\color{darkorange}I \space dont \space mind \space at \space all! \space Please \space dont \space be \space shy \space with \space me! \space Im \space a \space friendly \space guy \space I \space swear!}$
-> ^^
 
-> [!NOTE]
-> # BYI
-> I am 
