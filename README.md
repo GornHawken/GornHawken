@@ -12,5 +12,6 @@ $${\color{yellow}A \space pleasure \space having \space you \space taking \space
 ```
 ${\color{yellow}G'day \space to \space you \space dear \space reader! \space My \space names \space Gorn \space Hawken!}$
 
+(please do not concern urself on how I came up with the name Gorn.)
 > [!NOTE]
 > testing
