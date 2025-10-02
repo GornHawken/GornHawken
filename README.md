@@ -15,7 +15,7 @@ ${\color{yellow}G'day \space to \space you \space dear \space reader! \space My 
 (please do not concern urself on how I came up with the name Gorn.)
 
 
-${\color{orange}You \space can \space mostly \space find \space me \space in \space the \space TF2 \space area, \space often \space times \space im \space in \space the \space HP \space area \space or \space outside \space the \space Bakery.}$
+${\color{darkorange}You \space can \space mostly \space find \space me \space in \space the \space TF2 \space area, \space often \space times \space im \space in \space the \space HP \space area \space or \space outside \space the \space Bakery.}$
 
 > [!NOTE]
 > # BYI
