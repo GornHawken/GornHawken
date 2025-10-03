@@ -1,5 +1,5 @@
 <img width="1920" height="1080" alt="Untitled10_20251003154925" src="https://github.com/user-attachments/assets/5f692c36-8693-48d7-ade5-951a203cdbe8" />
-___
+---
 
 ```diff
 - PAIN IS TEMPORARY, JOY IS ETERNAL
