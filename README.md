@@ -1,6 +1,5 @@
 <img width="1920" height="1080" alt="Untitled10_20251003154925" src="https://github.com/user-attachments/assets/5f692c36-8693-48d7-ade5-951a203cdbe8" />
-
-
+___
 ```diff
 - PAIN IS TEMPORARY, JOY IS ETERNAL
 ```
@@ -17,7 +16,6 @@ ${\color{yellow}G'day \space to \space you \space dear \space reader! \space My 
 
 > [!WARNING]
 > (please do not concern urself on how I came up with the name Gorn.)
-
 
 ${\color{darkorange}You \space can \space mostly \space find \space me \space in \space the \space TF2 \space area, \space often \space times \space im \space in \space the \space HP \space area \space or \space outside \space the \space Bakery.}$
 ${\color{darkorange}Judging \space by \space my \space overly \space vibrant \space skins, \space yes \space I \space am \space indeed \space the \space type \space of \space guy \space that \space really \space loves \space rainbows \space and \space such!}$
