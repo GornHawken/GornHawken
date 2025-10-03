@@ -27,4 +27,8 @@ ${\color{darkorange}Judging \space by \space my \space overly \space vibrant \sp
 ${\color{darkorange}I \space am \space mostly \space with \space my \space friends \space most \space times \space but \space if \space u \space see \space me \space alone \space feel \space free \space to \space interact \space and \space C-H!}$
 ${\color{darkorange}I \space dont \space mind \space at \space all! \space Please \space dont \space be \space shy \space with \space me! \space Im \space a \space friendly \space guy \space I \space swear!}$
 
-:sun: 
+```diff
+! BYI
+```
+🟡 I am a devout born-again Christian, please respect my religious beliefs and please, dont think of my as those judgeful and hateful "Christians" who judges others for being part of LGBTQ or for being a furry, etc. I have no right to judge others for who they are since God Himself has already said once, "Do not judge, or you too will be judged... Why do you look at the speck of sawdust in your brother's eye and pay no attention to the plank in your own eye?".
+🟡 
