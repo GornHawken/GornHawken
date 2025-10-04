@@ -31,4 +31,5 @@ ${\color{darkorange}I \space dont \space mind \space at \space all! \space Pleas
 ! BYI
 ```
 🟡 I am a devout born-again Christian, please respect my religious beliefs and please, dont think of me as those judgeful and hateful "Christians" who judges others for being part of LGBTQ or for being a furry, etc. I have no right to judge others for who they are since God Himself has already said once, "Do not judge, or you too will be judged... Why do you look at the speck of sawdust in your brother's eye and pay no attention to the plank in your own eye?". I am willing to accept people for their beliefs and for who they are, unless you're genuinely problamatic then yeah, I'll be judging u a lot.
-🟡 
+
+🟡I am genuinely a very talktative
